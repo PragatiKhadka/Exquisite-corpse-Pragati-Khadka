@@ -8,3 +8,7 @@ Taking their roots in the earth,
 Sprouting, blooming , pollination by birds and insects, living on in spite of rain, wind and storms.
 
 Flower smells good.
+**flowers** are every where.  
+They **light up** the world.  
+They make me **happy**.  
+  
