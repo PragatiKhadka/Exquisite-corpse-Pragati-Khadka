@@ -13,5 +13,11 @@ Flower are **colorful**
 Flower smells good.
 **flowers** are every where.  
 They **light up** the world.  
-They make me **happy**.  
+They make me **happy**.
+
+In different seasons, we have different flowers.
+**Orchid** in spring
+**Lotus** in summer
+**Chrysanthemum** in autumn
+and **Plum Blossom** in winter  
   
